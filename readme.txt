@@ -1,0 +1,3 @@
+The template is released under Creative Commons Attribution license (http://creativecommons.org/licenses/by-sa/3.0/). So you are free to use it for personal or commercial purposes, modify it or redistribute as long as you keep the link back to WebTemplateOcean.com in the footer.
+
+Under no circumstances can you use the templates for websites with illegal or immoral (even if legal) content. This includes, but is not limited to pornography, obscenity, homosexuality, abortion, violence, drugs, gambling.
